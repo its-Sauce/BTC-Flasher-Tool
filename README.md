@@ -6,7 +6,7 @@ This is only working tool currently and you can only find USDT Flasher.
 
 If you are interested, please contact via Telegram: [@itsSauce](https://t.me/itsSauce)
 
-I do offer 24 hour trial to serious buyers.
+I do offer 24 hour free trial to serious buyers.
 
 
 
