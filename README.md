@@ -12,5 +12,4 @@ Pricing:
 6 Month - $2500
 Lifetime - $5000
 
-Showcase:
 Watch video here: [CLICK​](https://vimeo.com/1050920774)
